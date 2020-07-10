@@ -10,7 +10,7 @@ Taught career shifters to code in bootcamps and proud to have been part of 80 am
 
 Linux user and strong believer in Open Source <3.
 
-Director of Engineering @Swvl, #1BillionBookings!
+Director of Engineering @[Swvl](https://swvl.com), on the road #1BillionBookings!
 
 <!--
 
