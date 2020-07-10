@@ -8,7 +8,7 @@ Founded a company called mash, worked day in day out with fellow engineers on fu
 
 Taught career shifters to code in bootcamps and proud to have been part of 80 ambitious people’s journeys shifting their careers into programing.
 
-Linux user and strong believer in Open Source <3.
+Linux user and strong believer in Open Source ❤️, huge 🍕 & ☕️ enthausiast.
 
 Director of Engineering @[Swvl](https://swvl.com), on the road #1BillionBookings!
 
