@@ -10,7 +10,8 @@ Taught career shifters to code in bootcamps and proud to have been part of 80 am
 
 Linux user and strong believer in Open Source ❤️, huge 🍕 & ☕️ enthausiast.
 
-Global Head of Engineering @[Swvl](https://swvl.com), on the road #10BillionBookings!
+ex-Global Head of Engineering @[Swvl](https://swvl.com)
+Head of Engineering @[Payrails](https://payrails.com)
 
 <!--
 
